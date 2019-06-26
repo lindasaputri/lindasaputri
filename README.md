@@ -1,0 +1,2 @@
+# lindasaputri
+tugas simbada
